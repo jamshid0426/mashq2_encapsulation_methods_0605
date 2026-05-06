@@ -1,0 +1,1 @@
+# mashq2_encapsulation_methods_0605
